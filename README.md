@@ -1,1 +1,0 @@
-# CALGO-whitepaper-english
